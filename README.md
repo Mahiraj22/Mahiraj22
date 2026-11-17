@@ -1,5 +1,5 @@
 ## Socials
-LinkedIn: www.linkedin.com/in/mahiyaa
+LinkedIn: [www.linkedin.com/in/mahiyaa](https://www.linkedin.com/in/mahiraj22/)
 Email: mahisingh16945@gmail.com
 
 ## Tech Stack
